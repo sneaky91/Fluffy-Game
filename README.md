@@ -1,7 +1,7 @@
 # Fluffy-Game
 Not ready for download yet Not finished yet
 
-Fluffy-game Unlocker V3.0
+Fluffy-game 
 by Sneaky91
 
 ************************* READ HERE: *************************
